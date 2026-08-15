@@ -1,2 +1,2 @@
-# about-me.index.html
-YILDIZZ what's it mean
+i love coding and studying languages so....
+hove you like it
